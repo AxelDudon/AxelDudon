@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AxelDudon
-- 👀 I’m interested in the montains
+- 👀 I’m interested in montains
 - 🌱 I’m currently learning how to use DVA
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
